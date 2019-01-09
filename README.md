@@ -1,2 +1,0 @@
-# THANH123
-BT2giuaki
